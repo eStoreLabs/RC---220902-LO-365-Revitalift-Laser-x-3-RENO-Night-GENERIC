@@ -1,4 +1,4 @@
-# Revitalift-Laser-x-3-RENO-Day 220902-LO-365
+# Revitalift-Laser-x-3-RENO-Night 220902-LO-365
 
 <!-- please enter project number recived from PM -->
 
